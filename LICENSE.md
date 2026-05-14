@@ -1,4 +1,4 @@
-#  
+#  brookhaven rp Scripts ultimate is the best brookhaven rp Script, featuring no cooldown and auto-farm. Safe and powerful for all your needs.
 
 
 
